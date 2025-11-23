@@ -1,5 +1,5 @@
 <h1 align="center"><font color="green">❀拨雪寻春❀</h1>
-<p align="center"><img src="https://www.z4a.net/images/2021/12/20/xicc.webp"><br>
+<p align="center"><img src="https://www.haruhana.pp.ua/wp-content/assets/background.jpg"><br>
 <a href="https://www.pixiv.net/artworks/54849623" target="_blank" rel="external nofollow">转自P站画师：曦晨晨（xicc）</a></p>
 <p align="center">我们秉持初心，努力做高质量的中日双语字幕。<br>因为爱，所以专注。所以拨雪寻春，烧灯续昼。</p>
 
